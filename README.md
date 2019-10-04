@@ -2,6 +2,8 @@
 
 Describes who I understand I am and what I am not.
 
+Love to hear, where I am wrong, which are conflicting or what is limiting my growth!
+
 ### My beliefs...
  - being honest
  - integrity / logical consistency
