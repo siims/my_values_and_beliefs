@@ -30,3 +30,4 @@ Love to hear, where I am wrong, which are conflicting or what is limiting my gro
  - robots are awesome
  - humans will colonize other planets
  - I hopefully won't die
+ - non-monogomy over monogomy
