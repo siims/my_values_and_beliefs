@@ -5,21 +5,21 @@ Describes who I understand I am and what I am not.
 Love to hear, where I am wrong, which are conflicting or what is limiting my growth!
 
 ### My beliefs...
- - being honest
+ - being honest (to myself and others)
  - integrity / logical consistency
  - non-violance (mainly physical, but also psychological)
  - loyalty to close people
  - doing good to oneself
  - doing good to others
  - being frugal (try to live like all people could live)
- - just being happy
+ - can decide to be happy
  - principally equal value of life
  - life long working
  - life long learning
  - making decisions based on data
  - world works probabilistically
  - not chasing fame and prestige
- - humans are more important than other species
+ - humans are more important than other species we know
  - humans should minimize suffering to other species
  - all unschooling, homeschooling, democratic school are superior ways for kids to spend their time than traditional school
  - don't steal
@@ -30,4 +30,9 @@ Love to hear, where I am wrong, which are conflicting or what is limiting my gro
  - robots are awesome
  - humans will colonize other planets
  - I hopefully won't die
+ - I am responsible for my own sexual pleasure, not my partner
  - non-monogomy over monogomy
+ - I need to know what I really _need_ 
+ - I need to be able to offer myself safe-base and not depend on others
+ - sex and sexuality mustn't be a taboo
+
